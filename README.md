@@ -1,2 +1,0 @@
-# oymar
-cv , personal information
